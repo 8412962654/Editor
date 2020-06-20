@@ -1,0 +1,2 @@
+# Editor
+The editor is application which is created by shukla avinash these guy want to know the application run proper or not so please download the application , don't worry about these application it's not an any type of virus , these application not available in play and app store or any type of store so they give warning to us so don't get scared. The link of application is https://appsgeyser.io/10566571/Editor   
